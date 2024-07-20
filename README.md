@@ -1,6 +1,8 @@
 # mcoffee
 Modern Coffee
 
+Observe that it may behave better once passively cooled 20 minutes then covered with alumunum foil and refrigerated for 10+ hours. 
+
 1. Fill 50mL beaker with 30 mL of cold filtered water (from freezer unit) & add 20 mL distilled white vinegar. Wait 30 seconds.
 2. Pour beaker into coffee mug, then follow with 4 more beakers. Let sit 5 minutes.
 3. Add 14 mL Apple Cider Vinegar (measure with 1 mL syringe). Wait 3 minutes from finish of prior.

@@ -1,7 +1,7 @@
 # mcoffee
 Modern Coffee
 
-Observe that it may behave better once passively cooled 20 minutes (begins after final 5 minute wait) then covered with alumunum foil and refrigerated for 10-12 hours. 
+Observe that it may behave better once passively cooled 20 minutes (begins after final 5 minute wait) then covered with folded over paper towel & small ceramic plate atop, and refrigerated for 10-12 hours. 
 
 1. Fill 50mL beaker with 30 mL of cold filtered water (from freezer unit) & add 20 mL distilled white vinegar. Wait 30 seconds.
 2. Pour beaker into coffee mug, then follow with 4 more beakers. Let sit 5 minutes.

@@ -13,3 +13,5 @@ For near-immediate results, and/or for warm coffee, try a 21 minute total wait p
 6. After 5 seconds steady on level surface, stir CW with small tablespoon for 30 seconds. Once done, wait 40 seconds. Then stir as before. Each time remove spoon after stirring. Now wait 2.5 min.
 7. Add 10 raisins. Wait 3 minutes. Stir 30 seconds. Wait 5 minutes.
 8. Drink.
+
+Best aqxiy/sortdrink 3 mins after around 20 raisins on an empty stomach
